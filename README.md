@@ -1,1 +1,0 @@
-# ertythariq.github.io
